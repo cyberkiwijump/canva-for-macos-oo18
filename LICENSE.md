@@ -1,4 +1,4 @@
-# 
+# secure Canva for macOS Module | text-animation + layer-based-editing is the best Canva for macOS module, featuring text-animation and layer-based-editing. Powerful, efficient, and
 
 
 
